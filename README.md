@@ -1,1 +1,2 @@
 # coach-hireee
+Minibuses can have up to 17 seats [coach hire birmingham](https://britroute.co.uk/how-coach-hire-birmingham-is-perfect-for-group-travels/), including the driver's before they are classified as something bigger. Features of minibuses can vary wildly from one vehicle to another, with some having higher roofs and longer wheelbases than others. Most major car manufacturers also build minibuses.
